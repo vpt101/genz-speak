@@ -1,3 +1,6 @@
+# Gen-z Speak
+Just a handy reference for those among us who struggle to understand what the kids are saying these days. 
+
 |Word/Phrase|Meaning|Remarks|
 |:----------:|:-------------|:------|
 |AF|As fuck|On the lines of "as hell". Usage: "I am tired AF"|
