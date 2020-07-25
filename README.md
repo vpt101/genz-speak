@@ -1,5 +1,5 @@
 |Word/Phrase|Meaning|Remarks|
-|----------|:-------------:|------:|
+|:----------:|:-------------|:------|
 |AF|As fuck|On the lines of "as hell". Usage: "I am tired AF"|
 |and i oop |Phrase used to express amazement, shock or excitement|Attempts to enact being surprised and being speechless mid-sentence|
 |Bae|short for "before anyone else". |Usually used in the context of an SO or favourite food.|
