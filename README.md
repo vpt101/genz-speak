@@ -9,6 +9,7 @@ Just a handy reference for those among us who struggle to understand what the ki
 |Bomboclaat|Caribbean swear word. Now used to solicit opinions. Usually for a picture or a video.  The new Sco pa tu manaa||
 |FOMO|Fear Of Missing Out.||
 |GG|From "Good Game"|Used sarcastically - usually in lieu of butthead/dumbass/loser|
+|GOAT|Acronym: Greatest Of All Time||
 |I can’t even|I am speechless with astonishment/shock/rage/surprise||
 |IRL|In Real Life||
 |Lit|Exciting|Often used in conjunction with AF i.e. It is Lit AF|
