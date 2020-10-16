@@ -36,3 +36,5 @@ Just a handy reference for those among us who struggle to understand what the ki
 |Woke|Well-informed||
 |Y tho|"Why Though?" albeit sarcastically||
 |"yas/Yaassss/Yaassss (no definite number of a’s or s’s)"|Yes. With added punch||
+|"Yeet"|The actual meaning is To throw something with force - the kids use it as an expression of exclamation||
+
