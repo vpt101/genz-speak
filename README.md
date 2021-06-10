@@ -3,7 +3,7 @@ Just a handy reference for those among us who struggle to understand what the ki
 
 |Word/Phrase|Meaning|Remarks|
 |:----------:|:-------------|:------|
-|AF|As fuck|On the lines of "as hell". Usage: "I am tired AF"|
+|AF|As f***|On the lines of "as hell". Usage: "I am tired AF"|
 |and i oop |Phrase used to express amazement, shock or excitement|Attempts to enact being surprised and being speechless mid-sentence|
 |Bae|short for "before anyone else". |Usually used in the context of an SO or favourite food.|
 |Bomboclaat|Caribbean swear word. Now used to solicit opinions. Usually for a picture or a video.  The new Sco pa tu manaa||
@@ -20,7 +20,7 @@ Just a handy reference for those among us who struggle to understand what the ki
 |Salty|Bitter or upset.||
 |Shade|To subtly ridicule or to be disrespectful of someone|Typical use with (to) throw, throwing shade Usage: (1) She's throwing shade at her boyfriend's ex with that comment. (2) Noticed how he threw shade at his ex-wife by giving the dog the same name as her?|
 |Shook|Surprised or shocked.||
-|Simp|Sad character who is fawning excessively over someone. A lot worse than the perpetually friendzoned fellow. Possible origin: Sucker Idolising Mediocre Pussy||
+|Simp|Sad character who is fawning excessively over someone. A lot worse than the perpetually friendzoned fellow. Possible origin: Sucker Idolising Mediocre P...(Felis catus)||
 |sksksk|Sound/phrase used to express amazement, shock or excitement|Tries to encapsulate the frantic pressing of buttons on the keyboard Often used in place of OMG or LOL|
 |Slay|To be exceedingly impressive/attractive/amazing. |Usage: "Slay Queen/King!"Oft seen in Twitter replies/Instagram/Facebook comments to appreciate a stinging retort to racist old people.|
 |Sleeping on|Not being attentive to someone. |Usage: "Quit sleeping on <insert reality tv show name here>"|
@@ -30,7 +30,7 @@ Just a handy reference for those among us who struggle to understand what the ki
 |Stan|To be a really big fan of somone or something.|From an Eminem song of the same name. Apparently stands for "Stalker/Fan" minus the fear inducing connotations. Usage: I am totally stanning for Pink Floyd|
 |TBH|Acronym of To be Honest||
 |Tea|Gossip. Commonly used in lieu of "beans" in the phrase "Spill the beans"||
-|TF|"The Fuck". Short for WTF||
+|TF|"The F***". Short for WTF||
 |Thirsty|Desperate for attention.||
 |Turnt|From "Turn up" - party hard & go all out etc.|Coined by a certain "Wiz Khalifa". Usage: I can’t wait for the weekend to party and get turnt|
 |Woke|Well-informed||
